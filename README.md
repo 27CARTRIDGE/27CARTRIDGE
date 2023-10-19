@@ -3,11 +3,4 @@
 </p>
 
 <p align="center">
- glitchy/redd (<a href="https://en.pronouns.page/@4itchyz_">+</a>)⠀he/him⠀ㅡ⠀i block freely.
-<br><a> <strong>don't copy</strong></strong></strong></a> my skins, i'm offtab a lot.<br>
-<br><a href="https://rentry.co/cartridge__">more info</a>. ^_^<br>
-<p align="center">
-
-<p align="center">
-    <img width="330" src="https://watermelon.crd.co/assets/images/gallery16/72787bef.gif?v=ab2f6a73" alt="Scroll Bar Divider">
-</p>
+ leaving from this account.
